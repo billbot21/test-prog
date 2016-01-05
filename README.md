@@ -1,2 +1,3 @@
 # test-prog
 Testing github proc.
+BillBot here, praying for world peace.  I know some about a lot of areas, apparently no money in that.  And this country (world?) is all about that green-eyed ravenous monster-god called Money (Mammon)......
